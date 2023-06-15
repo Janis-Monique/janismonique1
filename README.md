@@ -1,5 +1,8 @@
 # janismonique1
-Hey 
+
+Hey
+
 My name is Janis 
+
 I am currently a student by DCI 
 
